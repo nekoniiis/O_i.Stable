@@ -4,4 +4,6 @@
 
 ---
 
-Created By Sword 💋
+Supporter By Sword 💋
+
+Dev By Nekoniiis 🍀
