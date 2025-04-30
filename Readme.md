@@ -1,9 +1,9 @@
 
-## NEYE BAKTIN GARDAŞ
+### NEYE BAKTIN GARDAŞ
 
 
 ---
 
-Supporter By Sword 💋
+Supporter and Suspecter By Sword 💋
 
-Dev By Nekoniiis 🍀
+## Dev By Nekoniiis 🍀
