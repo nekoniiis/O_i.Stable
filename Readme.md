@@ -4,6 +4,6 @@
 
 ---
 
-Supporter and Suspecter By Sword 💋
+Supporter and Creator By Sword 💋
 
 ## Dev By Nekoniiis 🍀
